@@ -1,0 +1,2 @@
+# 0x952B4b4C2FD8d6841D0aaBD2dFBD9591145E26c1
+Suica Token info&amp;logo
